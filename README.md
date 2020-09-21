@@ -7,9 +7,9 @@
  He said the name with so much tenderness, so much sorrow, it latched onto the heart of the young lass and didn't loosen its grip, giving rise to a dull ache deep within her chest. Tendrils of shadow spiralled across her face to the arrhythmic lurching of the ship. Her gaze lowered to the damp wooden boards, just so she would not have to look at his moment of vulnerability, to give him the privacy he deserved; knees hugged tight to her chest as she swayed along to the rhythm of the torrent that swelled and declined as if it couldn't make up its mind. 
  There was a scarcely perceptible tug on her sleeve from behind her. "Ma," she immediately turned round to attend to her mother. The deep-set scars of creases on her mother's forehead deepened as she was rocked to consciousness. Bit by bit, the frail old woman opened her eyes, carved crow's feet blooming from the corners of her natural squint. She slowly parted her lips. "Siew-ah," she whispered hoarsely. 
  "Yes, Ma?" She pushed all thoughts of the young man and his sister out her mind and bent forward to seek her mother's gaze, long braids falling over both shoulders. 
- Her mother looked for a long time into her eyes, and finally whispered, "Don't be sad any more." 
+ Her mother looked for a long time into her eyes, and finally whispered, "Don't be sad anymore." 
  Her mother's voice was soft yet firm, gentle yet unyielding, but even so, hesitant. The lass almost swallowed. 
- "Don't be sad any more," her mother said again, voice thin and tired eyes distant. "Nanyang will have many more challenges for you to face. Do what you think will make you stronger." 
+ "Don't be sad anymore," her mother said again, voice thin and tired eyes distant. "Nanyang will have many more challenges for you to face. Do what you think will make you stronger." 
  "But Ma," the lass whispered forlornly, voice thick and shaky; straining to hold back. Yet somehow everything she held back, told her mother everything she didn't know how to say. 
  "Be strong," her mother whispered. "He will be strong too." 
   •  •  •  
